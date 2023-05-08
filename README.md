@@ -1,2 +1,2 @@
 # Светлаковой УВ 2-ПМИ
-![image](https://user-images.githubusercontent.com/62110361/236836953-7a9d0f65-a0c7-4fd4-a0b6-1f1db41d4db6.png)
+![](https://media0.giphy.com/media/MaUARAPy1EfXS4P0H5/giphy.gif?cid=6c09b952jytounelasxyl2v6sq7ja3hze9x3k4t8u39jybad&ep=v1_stickers_related&rid=giphy.gif&ct=s)
